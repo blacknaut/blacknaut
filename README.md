@@ -1,4 +1,4 @@
 - 👥 Ola eu me chamo -> blacknott
-- 🎯 Meu discord e -> blacknaut#7656
+- 🎯 Meu discord e -> blacknaut#6001
 - 🔮 Meu servido -> https://discord.gg/zt58XChphY
 - 💻 Hopedagem que eu uso -> https://discord.gg/yG9aJDaBy4
